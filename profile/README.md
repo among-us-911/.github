@@ -2,7 +2,7 @@
 
 [![COVER](https://github.com/user-attachments/assets/e510dfb5-11fd-4a4d-8b8c-6f8121e50c84)](https://amongus-online.io/)
 
-### Play Among Us [here](https://amongus-online.io/)
+### Play [Among Us here](https://amongus-online.io/)
 
 Among Us is all about deception, teamwork, and strategy. Whether you're playing as a crewmate trying to complete tasks or an impostor attempting to sabotage and eliminate your opponents, knowing some cheats, hacks, and pro tips can give you an edge in the game. In this guide, we'll cover various cheats, exploits, and legitimate strategies to help you dominate the game!
 
@@ -23,7 +23,7 @@ Cheats in Among Us can range from simple in-game strategies to third-party hacks
 
 -  Invisibility Hack – Move undetected as an impostor.
 
-### ⚠️ Warning: Using third-party hacks in Among Us can get you permanently banned. Play fair and stick to strategic advantages!
+#### ⚠️ Warning: Using third-party hacks in Among Us can get you permanently banned. Play fair and stick to strategic advantages!
 
 ---
 ## 🎭 Best Legit Strategies for Winning
