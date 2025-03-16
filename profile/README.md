@@ -1,6 +1,6 @@
 # Among Us Cheats: Hacks, Tips, and Tricks to Win Every Game
 
-[![amongus (2)](https://github.com/user-attachments/assets/05143ca3-1baa-49b3-9a1b-570e18e47629)](https://amongus-online.io/)
+[![COVER](https://github.com/user-attachments/assets/e510dfb5-11fd-4a4d-8b8c-6f8121e50c84)](https://amongus-online.io/)
 
 ### Play Among Us [here](https://amongus-online.io/)
 
