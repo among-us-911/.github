@@ -83,6 +83,4 @@ While using game-breaking cheats can be fun in private lobbies, they ruin the ga
 
 If you're ready to test your skills and strategy, play Among Us online and see if you can outwit your friends or fellow players!
 
-Play [Among Us](https://amongus-online.io/) now!
-
-What’s your best Among Us strategy? Share your tips in the comments below! 🛸🔍
+Play [Among Us](https://amongus-online.io/) now!🛸
